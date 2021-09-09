@@ -7,4 +7,4 @@
 - 💞️ I’m looking to collaborate on any and all things
 
 - 📫 How to reach me:
-  email = peerreviewedpirate@gmail.com
+  - email = peerreviewedpirate@gmail.com
